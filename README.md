@@ -1,6 +1,6 @@
 Julien Stamp Collection App
 ---
 
-# About
+# About Julien's stamps
 
-Stuff about stamps and julien's stamps
+I AINT GOT NONE. No reason to get stamps...
